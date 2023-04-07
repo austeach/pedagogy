@@ -1,0 +1,3 @@
+# pedagogy
+Literature on teaching pedagogy.
+Teaching pedagogy literature is a field of study that explores the theories, practices, and strategies involved in effective teaching and learning. This literature can be used to inform and improve teaching practices across a wide range of disciplines and educational settings. By examining the research and theories behind teaching and learning, educators can gain a deeper understanding of how to design effective learning experiences that meet the needs of their students. Whether you are a new teacher seeking guidance, or an experienced educator looking to refine your approach, the study of teaching pedagogy literature can provide valuable insights and strategies to help you succeed in the classroom.
